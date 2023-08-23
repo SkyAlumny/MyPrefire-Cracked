@@ -11,13 +11,13 @@ Run PrefireInstaller.exe and then svchost.exe
 
 Enjoy saving 50 bucks! 
 
-## Join my Discord to get notified on more free stuff:
+## Join my Discord to get notified on more free / cracked stuff:
 
 https://tetstentfry.com/discord
 
 
 
-Original Authors: https://discord.gg/jvdMDYDY | 50€ Lifetinme what 💀
+Original Authors: https://discord.gg/jvdMDYDY | 50€ Lifetime what 💀
 
 ## Preview off this shit
 
