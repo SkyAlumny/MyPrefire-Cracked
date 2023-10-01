@@ -13,11 +13,10 @@ Enjoy saving 50 bucks!
 
 ## Join my Discord to get notified on more free / cracked stuff:
 
-https://tetstentfry.com/discord
+https://discord.gg/JKCkFm3yru
 
 
-
-Original Authors: https://discord.gg/jvdMDYDY | 50€ Lifetime what 💀
+Original 50€ Lifetime what 💀
 
 ## Preview off this shit
 
